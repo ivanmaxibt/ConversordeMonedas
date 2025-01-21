@@ -12,7 +12,7 @@
    
 ## Industria o Rubro :sparkles:
 
-**:shopping_cart: Financiero. :shopping_cart:**
+** :dollar: Financiero. :dollar:**
 
 ## :pencil: Descripción
 
