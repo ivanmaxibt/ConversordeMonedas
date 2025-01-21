@@ -12,7 +12,7 @@
    
 ## Industria o Rubro :sparkles:
 
-** :dollar: Financiero. :dollar:**
+**:dollar: Financiero. :dollar:**
 
 ## :pencil: Descripción
 
